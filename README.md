@@ -25,6 +25,7 @@ I tend to be quiet and prefer to listen when I'm in groups. I open up more in 1:
 ## What are your pet peeves?
 - Being late.
 - Mean, rude people.
+- Ugly design.
 
 ## What are your self-perceived biggest shortcomings?
 - I tend to sell myself short (I'm working on this).
