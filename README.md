@@ -18,7 +18,7 @@ I tend to be quiet and prefer to listen when I'm in groups. I open up more in 1:
 
 ## How can you best work with me?
 - When possible, allow me time to consider questions in advance of meetings.
-- I'm a terrible multi-tasker so I may not be able to read or respond to chats or Slack when I'm in meetings.
+- I'm a terrible multi-tasker so I may not always read or respond to chats or Slack when I'm in meetings.
 - Let me know when I make mistakes and when I do well.
 - It's okay to schedule meetings or Slack me during my Focus time.
 
